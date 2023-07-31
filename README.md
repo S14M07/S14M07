@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @S14M07
-- 👀 I’m interested in msic
+- 👀 I’m interested in music
 - 🌱 I’m currently learning music
 - 💞️ I’m looking to collaborate on music
 - 📫 How to reach me ...... music.
